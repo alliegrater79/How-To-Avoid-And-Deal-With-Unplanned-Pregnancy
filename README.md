@@ -15,7 +15,7 @@ It is sometimes simple to decide what to do with an unplanned premarital pregnan
 
 How To Deal With Unplanned Pregnancy<br>
 
-Here are a few steps that can help you cope with a premarital pregnancy:<br>
+Here are a few steps that can help you cope with a <a href="https://tooshytoask.org/educate/reproduction/premarital-pregnancies/">premarital pregnancy</a>:<br>
 
 1.	Consider the many options.<br>
 Move through your fear and imagine all of your possibilities. Consider yourself at home with your child. Consider grocery shopping and other daily activities.<br>
